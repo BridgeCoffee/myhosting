@@ -1,2 +1,0 @@
-# myhosting
-# myhosting
